@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @somashekharaigali
 - 👀 I’m interested in web development
  - 💞️ I’m looking to collaborate on good projects 
-- 📫 How to reach me somashekharaigali@gmail.com
+- 📫 How to reach me :- aigalisomashekhar@gmail.com
 - Mobile:8762408937
  
 
